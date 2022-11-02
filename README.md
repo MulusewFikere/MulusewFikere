@@ -7,4 +7,4 @@ Hi! I am Mulusew, a researcher based in IMB-UQ, Brisbane, QLD
 •	My repositories represent my current/past research contribution I can freely publish. 
 
 • If you cannot find something I contributed to, contact me via email/DM!
-Email: mulusewfikere@gmail.com
+• Email: mulusewfikere@gmail.com
